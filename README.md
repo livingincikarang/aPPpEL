@@ -1,2 +1,0 @@
-# aPPpEL
-Living in Cikarang
